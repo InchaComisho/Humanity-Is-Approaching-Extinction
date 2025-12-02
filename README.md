@@ -270,3 +270,5 @@ Hashtags
 
 #PlanetCooling #OceanBreathingSystem #DeepSeaAeration #UltrasonicMistCooling #GlobalCooling #DirectPlanetaryCooling #MicrobialCollapse #EcosystemCollapse #ClimateEmergency #BiosphereRestoration #NaturalLawEngineering #SaveTheEarth
 
+https://note.com/inchacomusho/n/n8f5448377729
+https://note.com/inchacomusho/n/nbbcf82a792d0
